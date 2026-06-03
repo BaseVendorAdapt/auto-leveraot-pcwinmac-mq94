@@ -1,4 +1,4 @@
-# 
+# Premium auto-leverage trading bot scripts para Mac OS | Seguro auto-leverage trading bot scripts para PC Windows. Com acompanhamento de perda impermanente e análise de momento — otimizado para máximo desempenho em cada plataforma.
 
 
 
